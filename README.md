@@ -9,5 +9,9 @@ Yu Garden Of Shang Hai ^^^^
 Hello everyone, I am going to introduce you about myself. My name is Danny Tran (Chan Kuan Wu). I have no friends. My friends doesn't like me. In my family there are my mother, father, little brother and little sister. I like to eat dumplings and my favorite drink is coke.
 
 
+
+![ShangHai](./top-10-places-to-visit-in-shang-hai.jpg)
+
+
 #参观的地点 （Can guan de di dian) (Places to visit)
 
