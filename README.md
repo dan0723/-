@@ -1,4 +1,4 @@
-# 关于我 (Guan Yu Wo) (About Me）
+# 关于我和上海 (Guan Yu Wo He ShangHai) (About Me and ShangHai）
 
 ![Yu Garden Art](./Yu-Garden-arti.jpg)
 
@@ -10,3 +10,4 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 
 #参观的地点 （Can guan de di dian) (Places to visit)
+
