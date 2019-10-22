@@ -143,4 +143,6 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 3. At night, you'll marvel at the illuminated logos and brand names that line the avenue.
 
+![SHANG IYA](./NANJING-ROAD.jpg)
+
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
