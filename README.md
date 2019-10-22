@@ -77,7 +77,13 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 5. Those afraid of heights shouldn't try to conquer their fear here. BUT it's still a lovely view.
 
-# 4) Yuyuan Garden
+# 5) Yuyuan Garden
 
-1.
+1.  The 5-acre Yuyuan Garden is the city's most revered green space.
+
+2.  The garden took nearly 20 years to completely construct and was initially intended to be the private garden for Ming-dynasty official Pan Yunduan and his family.
+
+3.  Here, you'll find six main scenic areas and 30 pavilions outfitted with ornate structures like decorated bridges and colorful pagodas as well intimate enclaves that are divided by "dragon walls" (partitions with stone dragons lying on top). Highlights include the Heralding Spring Hall, the Jade Magnificence Hall and the Lotus Pool. 
+
+
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
