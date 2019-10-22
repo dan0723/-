@@ -93,6 +93,8 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 3.  Here, you'll find six main scenic areas and 30 pavilions outfitted with ornate structures like decorated bridges and colorful pagodas as well intimate enclaves that are divided by "dragon walls" (partitions with stone dragons lying on top). Highlights include the Heralding Spring Hall, the Jade Magnificence Hall and the Lotus Pool. 
 
+![YU GARDEN](./YU-GARDEN.jpg)
+
 # 6) Longhua Temple
 
 1.  Longhua Temple is a natural tourist attraction, drawing droves of travelers. The temple was built in the 10th century and is named after the pipal tree where Buddha is said to have reached enlightenment.
