@@ -37,6 +37,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 #THE BUND
 
-
+*Shanghai's picturesque waterfront, known as "the Bund," is where you'll find those classic skyline photo ops.
+*Such as the Oriental pearl TV Tower, the Shanghair World Fanancial Center and other skyscrapers standing across the Huangou River.
 
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
