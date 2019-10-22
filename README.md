@@ -13,7 +13,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 ![ShangHai](./top-10-places-to-visit-in-shang-hai.jpg)
 
 
-# 参观的地点 （Can guan de di dian) (Places to visit)
+# 参观的地点 （Cānguān dì dìdiǎn) (Places to visit)
 
 1)[The Bund](https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/)
 
