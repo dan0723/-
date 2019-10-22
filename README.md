@@ -103,6 +103,8 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 3.  Expect hordes of peach blossoms to make appearances in your photographs.
 
+![LONG HUA](./LONG-HUA.jpg)
+
 # 7) Jade Buddha Temple
 
 1.  The temple was originally built to house two jade statues brought in from Burma
