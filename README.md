@@ -83,6 +83,8 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 5. Those afraid of heights shouldn't try to conquer their fear here. BUT it's still a lovely view.
 
+![SHANG HAI](./SHANG-HAI.jpg)
+
 # 5) Yuyuan Garden
 
 1.  The 5-acre Yuyuan Garden is the city's most revered green space.
