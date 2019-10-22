@@ -133,6 +133,8 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 3.  The Shanghai Municipal History Museum also resides here and merits a quick visit.
 
+![pearl TV tower shanghai](./pearl-TV-tower-shanghai.jpg)
+
 # 10) Nanjing Road
 
 1. Nanjing Road stretches six miles total and boasts retailers from all over the world in addition to local shops and department stores.
