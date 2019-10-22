@@ -113,6 +113,8 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 3.  There's also the Hall of the Reclining Buddha, which houses the second jade buddha statue, carved from a single piece of white jade.
 
+![JADE BUDDHA](./JADE-BUDDHA.jpg)
+
 # 8) Shanghai Maglev
 
 1.  The Shanghai Maglev is one of the fastest passenger trains in the world
