@@ -123,7 +123,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 3. Passengers on board the Shanghai Maglev are blasted between downtown and Pudong International Airport in about 7 minutes
 
-![mag lev](./Shanghai-Maglev)
+![mag lev](./Shanghai-Maglev.jpg)
 
 # 9) Oriental Pearl TV Tower
 
