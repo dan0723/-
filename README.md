@@ -49,4 +49,17 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 # Shanghai Museum
 
+1.Frequently called one of the best museums in China,
+
+2.This expansive museum houses a diverse collection of artifacts (more than 1,000,000 to be exact) that chart the nation's history.
+
+3. English-speaking travelers, in particular, praised the museum for its presentation of both Chinese and English exhibit descriptions
+
+4. Others loved the vast amount of historical articles available for view and appreciated the comprehensive history lesson they were able to get out of it.
+
+5.  Keep in mind: Since there is no entrance fee, you're likely to encounter many others looking to take advantage of this freebie, so come early if you can.
+
+# Zhujiajiao
+
+1.
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
