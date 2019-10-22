@@ -133,7 +133,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 3.  The Shanghai Municipal History Museum also resides here and merits a quick visit.
 
-![pearl TV tower shanghai](./pearl-TV-tower-shanghai.jpg)
+![pearl shanghai](./pearl-TV-tower-shanghai.jpg)
 
 # 10) Nanjing Road
 
