@@ -16,13 +16,23 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 # 参观的地点 （Can guan de di dian) (Places to visit)
 
 1) [The Bund](https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/)
+
 2)[Shanghai Museum](https://travel.usnews.com/Shanghai_China/Things_To_Do/Shanghai_Museum_62573/)
+
 3)[Zhujiajiao](https://travel.usnews.com/Shanghai_China/Things_To_Do/Shanghai_Museum_62573/)
+
 4)[Shanghai World Financial Center](https://travel.usnews.com/Shanghai_China/Things_To_Do/Shanghai_World_Financial_Center_62571/)
+
 5)[Yuyuan Garden](https://travel.usnews.com/Shanghai_China/Things_To_Do/Yuyuan_Garden_62576/)
+
 6)[Longhua Temple](https://travel.usnews.com/Shanghai_China/Things_To_Do/Longhua_Temple_62586/)
+
 7)[Jade Buddha Temple](https://travel.usnews.com/Shanghai_China/Things_To_Do/Jade_Buddha_Temple_62585/)
+
 8)[Shanghai Maglev](https://travel.usnews.com/Shanghai_China/Things_To_Do/Shanghai_Maglev_62577/)
+
 9)[Oriental Pearl TV Tower](https://travel.usnews.com/Shanghai_China/Things_To_Do/Oriental_Pearl_TV_Tower_62572/0
+
 10)[Nanjing Road](https://travel.usnews.com/Shanghai_China/Things_To_Do/Nanjing_Road_62574/)
+
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
