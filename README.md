@@ -61,5 +61,23 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 # Zhujiajiao
 
+1.  The area remains composed of numerous canals with bridges connecting visitors to scores of charming narrow streets
+
+2.  Expect to find tiny cafes down back alleys, friendly boatmen offering rides and hole-in-the-wall shops selling souvenirs.
+
+# Shanghai World Financial Center
+
+1. The Shanghai World Financial Center stands as one of the world's tallest buildings, glittering majestically on the skyline.
+
+2. Best place for bird eye view.
+
+3. Take the 49-second elevator, which is one of the fastest in the world, to the 94th and 97th floors where you'll be treated to a jaw-dropping urban panorama.
+
+4. The true highlight is on the 100th floor. Here, the Sky Walk – the world's highest observatory – allows guests to marvel at this Chinese metropolis from 1,555 feet above ground.
+
+5. Those afraid of heights shouldn't try to conquer their fear here. BUT it's still a lovely view.
+
+# Yuyuan Garden
+
 1.
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
