@@ -69,6 +69,8 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 2.  Expect to find tiny cafes down back alleys, friendly boatmen offering rides and hole-in-the-wall shops selling souvenirs.
 
+![water town](./water-town.jpg)
+
 # 4) Shanghai World Financial Center
 
 1. The Shanghai World Financial Center stands as one of the world's tallest buildings, glittering majestically on the skyline.
