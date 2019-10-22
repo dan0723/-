@@ -39,6 +39,14 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 1. Shanghai's picturesque waterfront, known as "the Bund," is where you'll find those classic skyline photo ops.
 
-2. Such as the Oriental pearl TV Tower, the Shanghair World Fanancial Center and other skyscrapers standing across the Huangou River.
+2.  Such as [the Oriental pearl](https://travel.usnews.com/Shanghai_China/Things_To_Do/Oriental_Pearl_TV_Tower_62572/) TV Tower, [the Shanghair World Fanancial Center](https://travel.usnews.com/Shanghai_China/Things_To_Do/Shanghai_World_Financial_Center_62571/) and other skyscrapers standing across the Huangou River.
+
+3.  And behind you, gorgeous European-style buildings housing restaurants and shops (Nanjing Road is just around the corner) line the waterfront boulevard, affording plenty of activities.
+
+4.  Visitors consistently report being in complete awe of Shanghai's skyline, so much so that some said skipping this attraction would be like skipping the Eiffel Tower in [Paris](https://travel.usnews.com/Paris_France/).
+
+5.  It's better to go at night because all the beautiful lights would show off from the buildings shining in front of your face giving out a positive feeling! (It's really a relaxing feeling and stress free.)
+
+#Shanghai Museum
 
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
