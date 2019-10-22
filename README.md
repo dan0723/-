@@ -95,7 +95,7 @@ Extra: I am a student at Umass Boston, I took part in the science field and majo
 
 3.  Here, you'll find six main scenic areas and 30 pavilions outfitted with ornate structures like decorated bridges and colorful pagodas as well intimate enclaves that are divided by "dragon walls" (partitions with stone dragons lying on top). Highlights include the Heralding Spring Hall, the Jade Magnificence Hall and the Lotus Pool. 
 
-![YU GARDEN](./YU-GARDEN.jpg)
+![YU GARDEN ak](./YU-GARDEN.jpg)
 
 # 6) Longhua Temple
 
