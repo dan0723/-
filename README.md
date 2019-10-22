@@ -31,7 +31,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 8)[Shanghai Maglev](https://travel.usnews.com/Shanghai_China/Things_To_Do/Shanghai_Maglev_62577/)
 
-9)[Oriental Pearl TV Tower](https://travel.usnews.com/Shanghai_China/Things_To_Do/Oriental_Pearl_TV_Tower_62572/0
+9)[Oriental Pearl TV Tower](https://travel.usnews.com/Shanghai_China/Things_To_Do/Oriental_Pearl_TV_Tower_62572/0)
 
 10)[Nanjing Road](https://travel.usnews.com/Shanghai_China/Things_To_Do/Nanjing_Road_62574/)
 
