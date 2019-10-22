@@ -35,7 +35,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 10)[Nanjing Road](https://travel.usnews.com/Shanghai_China/Things_To_Do/Nanjing_Road_62574/)
 
-# THE BUND
+# 1) THE BUND
 
 1. Shanghai's picturesque waterfront, known as "the Bund," is where you'll find those classic skyline photo ops.
 
@@ -47,7 +47,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 5.  It's better to go at night because all the beautiful lights would show off from the buildings shining in front of your face giving out a positive feeling! (It's really a relaxing feeling and stress free.)
 
-# Shanghai Museum
+# 2) Shanghai Museum
 
 1.Frequently called one of the best museums in China,
 
@@ -59,13 +59,13 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 5.  Keep in mind: Since there is no entrance fee, you're likely to encounter many others looking to take advantage of this freebie, so come early if you can.
 
-# Zhujiajiao
+# 3) Zhujiajiao
 
 1.  The area remains composed of numerous canals with bridges connecting visitors to scores of charming narrow streets
 
 2.  Expect to find tiny cafes down back alleys, friendly boatmen offering rides and hole-in-the-wall shops selling souvenirs.
 
-# Shanghai World Financial Center
+# 4) Shanghai World Financial Center
 
 1. The Shanghai World Financial Center stands as one of the world's tallest buildings, glittering majestically on the skyline.
 
@@ -77,7 +77,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 5. Those afraid of heights shouldn't try to conquer their fear here. BUT it's still a lovely view.
 
-# Yuyuan Garden
+# 4) Yuyuan Garden
 
 1.
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
