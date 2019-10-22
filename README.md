@@ -61,6 +61,8 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 5.  Keep in mind: Since there is no entrance fee, you're likely to encounter many others looking to take advantage of this freebie, so come early if you can.
 
+![shanghai museum](./shang-hai-musuem.jpg)
+
 # 3) Zhujiajiao
 
 1.  The area remains composed of numerous canals with bridges connecting visitors to scores of charming narrow streets
