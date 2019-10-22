@@ -87,7 +87,31 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 # 6) Longhua Temple
 
+1.  Longhua Temple is a natural tourist attraction, drawing droves of travelers. The temple was built in the 10th century and is named after the pipal tree where Buddha is said to have reached enlightenment.
 
+2.  Take time to explore the five main halls each filled to the brim with ornate sculptures, including numerous buddhas. Also take time to marvel at the more than 14,000-pound bell located in the bell and drum tower near the entrance. 
+
+3.  Expect hordes of peach blossoms to make appearances in your photographs.
+
+# 7) Jade Buddha Temple
+
+1.  The temple was originally built to house two jade statues brought in from Burma
+
+2.  In the Grand Hall, three golden Buddhas represent the incarnations of Buddha (past, present and future), while the Heavenly King Hall features four heavenly kings surrounding more buddhas, acting as divine protectors.
+
+3.  There's also the Hall of the Reclining Buddha, which houses the second jade buddha statue, carved from a single piece of white jade.
+
+# 8) Shanghai Maglev
+
+1.  The Shanghai Maglev is one of the fastest passenger trains in the world
+
+2.  Traveling at about 270 miles per hour, this train is the adult equivalent of the theme park ride.
+
+3. Passengers on board the Shanghai Maglev are blasted between downtown and Pudong International Airport in about 7 minutes
+
+# 9) Oriental Pearl TV Tower
+
+# 10) Nanjing Road
 
 
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
