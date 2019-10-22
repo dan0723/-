@@ -85,5 +85,6 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 3.  Here, you'll find six main scenic areas and 30 pavilions outfitted with ornate structures like decorated bridges and colorful pagodas as well intimate enclaves that are divided by "dragon walls" (partitions with stone dragons lying on top). Highlights include the Heralding Spring Hall, the Jade Magnificence Hall and the Lotus Pool. 
 
+# 6) Longhua Temple
 
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
