@@ -47,6 +47,8 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 5.  It's better to go at night because all the beautiful lights would show off from the buildings shining in front of your face giving out a positive feeling! (It's really a relaxing feeling and stress free.)
 
+![THE BUND](./shang-hai.jpg)
+
 # 2) Shanghai Museum
 
 1.Frequently called one of the best museums in China,
@@ -111,7 +113,18 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 # 9) Oriental Pearl TV Tower
 
+1. Shanghai's most recognizable landmark, the Oriental Pearl TV Tower
+
+2. Sitting a staggering 1,148 feet above the ground is the highest observation deck
+
+3.  The Shanghai Municipal History Museum also resides here and merits a quick visit.
+
 # 10) Nanjing Road
 
+1. Nanjing Road stretches six miles total and boasts retailers from all over the world in addition to local shops and department stores.
+
+2. In the daylight, you'll admire the graceful architecture of the surrounding buildings
+
+3. At night, you'll marvel at the illuminated logos and brand names that line the avenue.
 
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
