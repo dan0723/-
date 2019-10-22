@@ -35,7 +35,7 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 10)[Nanjing Road](https://travel.usnews.com/Shanghai_China/Things_To_Do/Nanjing_Road_62574/)
 
-#THE BUND
+# THE BUND
 
 1. Shanghai's picturesque waterfront, known as "the Bund," is where you'll find those classic skyline photo ops.
 
@@ -47,6 +47,6 @@ Hello everyone, I am going to introduce you about myself. My name is Danny Tran 
 
 5.  It's better to go at night because all the beautiful lights would show off from the buildings shining in front of your face giving out a positive feeling! (It's really a relaxing feeling and stress free.)
 
-#Shanghai Museum
+# Shanghai Museum
 
 https://travel.usnews.com/Shanghai_China/Things_To_Do/The_Bund_62575/
