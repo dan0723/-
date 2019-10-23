@@ -12,8 +12,7 @@ Extra: I am a student at Umass Boston, I took part in the science field and majo
 
 
 
-![ShangHai](./top-10-places-to-visit-in-shang-hai.jpg) `#f03c15`
-
+![ShangHai](./top-10-places-to-visit-in-shang-hai.jpg) 
 
 # 参观的地点 （Cānguān dì dìdiǎn) (Places to visit)
 
